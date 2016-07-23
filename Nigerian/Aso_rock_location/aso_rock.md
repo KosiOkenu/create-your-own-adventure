@@ -1,0 +1,1 @@
+The location of Aso Rock, which is the place where the president of Nigeria resides is located in Abuja which is in the North.
